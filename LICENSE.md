@@ -1,4 +1,4 @@
-
+Affinity Designer for macOS best Plugin - asset management and typography tools offers the most advanced Affinity Designer for macOS plugin, with asset management and typography
 
 
 
